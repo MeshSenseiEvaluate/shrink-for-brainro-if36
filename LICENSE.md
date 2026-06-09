@@ -1,4 +1,4 @@
-# 
+# elite shrink for brainrots Script offers the most advanced shrink for brainrots Script, with undetectable and fly. Perfect for dominating any match.
 
 
 
